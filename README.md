@@ -15,7 +15,7 @@
 Pharmaceutical Manufacturing Technician, I'm currently following a online course to became Web and Mobile app Designer and Developper.
 Be patient ! I've got a lot of news about my skills to bring here very soon !
 
-## Hot to Join me ? 
+## How to Join me ? 
 
 <a href="https://www.linkedin.com/in/jacques-duchamplecheval/">
   <img alt="LinkedIn" src="https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white">
