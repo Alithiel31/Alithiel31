@@ -12,7 +12,7 @@
  - - - 
  ## 🧰 Professional part 
 
-Pharmaceutical Manufacturing Technician, I'm currently following a online course to became Web and Mobile app Designer and Developper.
+Pharmaceutical Manufacturing Technician at the start, I'm currently following a online course to became Web and Mobile app Designer and Developper.
 Be patient ! I've got a lot of news about my skills to bring here very soon !
 
 ## How to Join me ? 
